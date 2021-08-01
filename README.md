@@ -1,1 +1,1 @@
-"# c0xffeeNFT" 
+c0xffee NFT
